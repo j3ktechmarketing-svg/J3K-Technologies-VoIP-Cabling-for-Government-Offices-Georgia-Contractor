@@ -51,7 +51,7 @@ We ensure that your corporate office remains connected, operational, and secure 
 
 ## Why Choose J3K Technologies?
 
-Whether you need a LAN Cabling for Airports Georgia Service Provider, (VoIP Cabling for Government Offices Georgia Contractor)[https://www.j3ktech.com/services/structured-cabling/], or Emergency Cabling for Corporate Offices Georgia Installation Partner, J3K Technologies delivers reliable, compliant, and high-performance communication infrastructure solutions.
+Whether you need a LAN Cabling for Airports Georgia Service Provider, [VoIP Cabling for Government Offices Georgia Contractor](https://www.j3ktech.com/services/structured-cabling/), or Emergency Cabling for Corporate Offices Georgia Installation Partner, J3K Technologies delivers reliable, compliant, and high-performance communication infrastructure solutions.
 
 ### What Sets Us Apart:
 - Certified technicians with structured cabling expertise
